@@ -1,1 +1,1 @@
-# MarNu
+# MarNu Magazine
